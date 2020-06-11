@@ -4,4 +4,4 @@
 <h2> Jay Jagannath Omm Namaha Shivaya </h2>
 <h2> Jay Jagannath Omm Namaha Shivaya </h2>
 Alo mitani khetramani karichi guni
-dinarati.
+dinarati mora nayane nachuchi kalia dhaanara abhula thani.
